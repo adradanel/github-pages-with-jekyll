@@ -1,3 +1,4 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+Tervist!
+Täna on 12-nes august ning mõtlesin, et kirjutan midagi sellest päevast.
